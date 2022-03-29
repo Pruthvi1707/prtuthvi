@@ -1,1 +1,1 @@
-# prtuthvi
+# Pruthvi
